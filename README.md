@@ -37,4 +37,4 @@ This project intends to significantly cut down on the amount of time each vehicl
 
 --> Innovation: Continued commitment to safety and reliability through advanced algorithmic solutions.
 
-# To make Mercedes-Benz manufacturing not only greener but also more efficient! Let’s rev up the engines for a cleaner, smoother ride! 🚗🌿
+# Hop on board for a thrilling ride as we make Mercedes-Benz manufacturing greener and sleeker! 🚗🌿
